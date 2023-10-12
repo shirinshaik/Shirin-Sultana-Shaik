@@ -10,5 +10,6 @@
 
 😄 Pronouns: she/her
 
-## My Favorite Quote: "Free education is abundant all over the internet. It's the desire to learn that's scarce." 
+My Favorite Quote:
+### "Free education is abundant all over the internet. It's the desire to learn that's scarce." 
 /Naval via Twitter/
